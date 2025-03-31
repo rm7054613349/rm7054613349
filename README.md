@@ -1,4 +1,4 @@
-# Hello there 👋, I'm Ritesh Mihra
+# Hello there 👋, I'm Ritesh Mishra
 
 
 ## 👨‍💻 About Me
